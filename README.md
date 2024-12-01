@@ -170,5 +170,3 @@ Asset Growth:
 1. Tesla (29.5%)  
 2. Microsoft (24.3%)  
 3. Apple (3.5%)  
-
-Let me know if you’d like this in a different format or need additional details!
